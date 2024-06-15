@@ -1,4 +1,4 @@
-**Terms Of Services of SubsMusic**
+**Rules**
 
 • Your age must be 13 or 13+ or legal consent age for your country.
 
